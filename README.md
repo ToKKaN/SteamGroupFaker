@@ -8,6 +8,7 @@
 ![enter image description here](https://1337.love/Curvy_Andeancat.png)
 
 ![enter image description here](https://1337.love/Piercing_Tigershark.png)
+**This character does not work in the url**
 
 ![enter image description here](https://1337.love/Accomplished_Gazelle.png)
 
